@@ -1,1 +1,1 @@
-# amforjah-ai
+# amforjah.ai
